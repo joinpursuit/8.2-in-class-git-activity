@@ -1,3 +1,3 @@
 sammmmmm
 another change
-My favorite day of the week is Saturday!!!!!!!!
+My favorite day of the week is Friday!!!!!!!!
