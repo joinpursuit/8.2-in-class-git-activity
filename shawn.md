@@ -1,1 +1,0 @@
-I have no opinion on days of the week. 
